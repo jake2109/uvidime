@@ -1,3 +1,3 @@
 # uvidime
 neviem 
-no 
+no čo uz
